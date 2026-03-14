@@ -32,7 +32,7 @@
   > 家校协同图泄漏后老师的补救措施，要求学生用各种手段防止消息传播。
 - [1-4.webp](1-4.webp) 个人事件描述 _uploader: katurahinagiku_
   > 苏州府学遭遇诺如袭击发生的故事。
-- [2-0.webp](2-0.webp) 事件说明视频 _uploader: katurahinagiku_
+- [2-0.mp4](2-0.mp4) 事件说明视频 _uploader: katurahinagiku_
   > 事件说明视频，曾短暂在 bilibili 上可见 (BV1fSwHzjEYV)。
 
 ## 提供相关信息
